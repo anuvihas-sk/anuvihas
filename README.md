@@ -8,7 +8,7 @@ I'm looking to collaborate on... 💞️ Building a website or application for a
 
 How to reach me... 📫 anuvihas2005@gmail.com or @anuvihas on Twitter
 
-Pronouns: 😄 He/him
+Pronouns: 🌱 He/him
 
 Fun fact: The First Ever Web Page created is still alive! 😊
 
